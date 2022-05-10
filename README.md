@@ -1,0 +1,4 @@
+- 👋 Hi, I’m Naina
+- 👀 I’m interested in bing a secondary teacher in future
+- 🌱 I’m currently learning as a student in secondary 3
+- 💞️ I’m looking to collaborate on having more experience with coding.
